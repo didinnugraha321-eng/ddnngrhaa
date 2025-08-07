@@ -1,2 +1,2 @@
 # ddnngrhaa
-my github profilr
+my github profile
